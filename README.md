@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ringodango
+- i created this account bc lord dev of be told me to xd
